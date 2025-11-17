@@ -1,0 +1,1 @@
+# Faixas_PAN_DomInt
